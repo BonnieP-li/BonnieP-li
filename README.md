@@ -13,6 +13,7 @@ My skill set includes proficiency in:
 📫 Feel free to reach out via email at bonniephl03@gmail.com if you'd like to connect!
 
 😄 Pronouns: She/her
+
 ⚡ Fun fact: I'm scared of birds 🐦
 
 <!---
